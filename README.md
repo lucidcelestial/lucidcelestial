@@ -1,3 +1,4 @@
-Lena // she/they // perpetually tired celestial // avid music enjoyer
+perpetually tired celestial
 
-contact: (discord) Lena | heketa#0001 
+>[DISCORD] Lena | heketa#0001 
+>[TWITTER] @Iucidcelestial
