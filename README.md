@@ -1,4 +1,5 @@
-perpetually tired celestial
+**perpetually tired celestial**
 
->[DISCORD] Lena | heketa#0001 
+>[DISCORD] Lena | heketa#0001
+>
 >[TWITTER] @Iucidcelestial
