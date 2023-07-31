@@ -1,5 +1,3 @@
-**perpetually tired celestial**
-
->[DISCORD] Lena | heketa#8523
+>[DISCORD] lucidcelestial
 >
 >[TWITTER] @Iucidcelestial
