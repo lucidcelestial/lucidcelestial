@@ -1,4 +1,4 @@
-    ✦ lena celestia
+    ✦ kyana valerie
       ✧ discord: lucidcelestial
       ✧ twitter: @Iucidcelestial
       ✧ bluesky: @lucidcelestial.dev
